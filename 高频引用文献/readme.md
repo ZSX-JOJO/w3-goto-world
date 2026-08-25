@@ -1,3 +1,5 @@
+Arendt, H. (1958). The human condition. University of Chicago Press. [[PDF(SECOND EDITION)]](https://moodle.bezalel.ac.il/pluginfile.php/112179/mod_resource/content/1/Arendt%2C%20Hannah%20-%20Human%20Condition%2C%202nd%20edn.%20%28Chicago%2C%201998%29.pdf), [[PDF]](https://www.bard.edu/library/pdfs/Arendt-HumanCondition(UChicago).pdf)
+
 Arendt, H. (1963). *Eichmann in Jerusalem: A report on the banality of evil*. Viking Press. [[Scribd]](https://www.scribd.com/document/242012071/Hannah-Arendt-Eichmann-in-Jerusalem), [[Z-Library(CN)]](https://z-library.biz/book/Zl9npqLarJ/%E8%89%BE%E5%B8%8C%E6%9B%BC%E5%9C%A8%E8%80%B6%E8%B7%AF%E6%92%92%E5%86%B7%E4%B8%80%E4%BB%BD%E5%85%B3%E4%BA%8E%E5%B9%B3%E5%BA%B8%E7%9A%84%E6%81%B6%E7%9A%84%E6%8A%A5%E5%91%8A-eichmann-in-jerusalem-a-report-of-the-banality-of-evil.html)
 
 Bourdieu, P. (1986). The forms of capital. In J. Richardson (Ed.), *Handbook of theory and research for the sociology of education* (pp. 241–258). Greenwood. [[PDF]](https://www.ucg.ac.me/skladiste/blog_9155/objava_66783/fajlovi/Bourdieu%20The%20Forms%20of%20Capital%20_1_.pdf)
