@@ -14,6 +14,8 @@
 
 斯坦福哲学百科全书：https://plato.stanford.edu/contents.html
 
+TheoryHub 理论中心：https://open.ncl.ac.uk/academic-theories
+
 科学名词查询网：http://www.sciref.net
 
 思辨录：https://mind-guards.com
