@@ -18,6 +18,12 @@ TheoryHub 理论中心：https://open.ncl.ac.uk/academic-theories
 
 科学名词查询网：http://www.sciref.net
 
+安娜档案馆：https://annas-archive.is
+
+Scihub：https://sci-hub.st
+
+Z库：https://z-library.sk
+
 lesswrong 高校人才、学者聚集地：https://www.lesswrong.com
 
 全球知名的思维模型科普网站：https://fs.blog/mental-models
